@@ -1,4 +1,4 @@
-# 
+# NordPass for macOS exclusive Script: device-lock & system-optimization offers the most advanced NordPass for macOS script, with device-lock and system-optimization. Ideal for
 
 
 
